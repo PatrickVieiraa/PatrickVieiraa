@@ -1,0 +1,6 @@
+- 👋 Olá Estranho, eu sou o Patrick Vieira
+- 👀 entusiasta em programação
+- 🌱 Atualmente cursando Analise e desenvolvimento de sistemas na UNOPAR
+-                 
+-                  
+-                                                    Made in NORDESTE! :)
